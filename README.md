@@ -41,7 +41,7 @@ My academic and professional experiences span clinical healthcare, healthcare pr
 ### Connect With Me
 
 - LinkedIn: [https://www.linkedin.com/in/maryroseirebo](https://www.linkedin.com/in/maryroseirebo)
-- Portfolio: [hhtps://www.nneomairebo.com](hhtps://www.nneomairebo.com)
+- Portfolio: [https://www.nneomairebo.com](https://www.nneomairebo.com)
 - Email: [Add professional email address](mailto:YOUR_EMAIL)
 
 I welcome opportunities to connect with public health researchers, global health professionals, academic institutions, and organizations working to improve health outcomes.
