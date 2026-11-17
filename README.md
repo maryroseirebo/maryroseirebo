@@ -3,7 +3,7 @@
 
 ### Global Health | Epidemiology | Public Health Research | Digital Health
 
-I am a Medical Physiology graduate and Master of Public Health candidate in Epidemiology at Ahmadu Bello University, Nigeria.
+I am a Medical Physiology graduate and Master of Public Health student in Epidemiology at Ahmadu Bello University, Nigeria.
 
 My interests lie in understanding health challenges, examining population-level health data, and exploring how research and technology can improve healthcare delivery.
 
